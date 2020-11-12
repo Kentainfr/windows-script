@@ -21,4 +21,4 @@ If you see this and you don't understand feel free to join our discord.
 
 Also XLife is dead but another project is coming. Stay tuned.
 
-Discord: tanPeMd
+Discord: https://discord.gg/tanPeMd
