@@ -15,4 +15,10 @@ Few hours passed and I see lots of things first he say that I didn't do anything
 
 He decided to talk about my personal life with other people, most of this friends did came to my pm and injuring me and saying bad stuff, so that's why I'm sharing this. 
 
-This is protectec by a MIT License but feel free to edit and make some better stuff with it !
+This is protected by a MIT License but feel free to edit and make some better stuff with it !
+
+If you see this and you don't understand feel free to join our discord.
+
+Also XLife is dead but another project is coming. Stay tuned.
+
+Discord: tanPeMd
